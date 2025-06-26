@@ -1,4 +1,4 @@
-## ☕ Oie! Eu sou a Bruna mas pode me chamar de Bruu!
+## ☕ Oie! Pode me chamar de Bruu!
 **`Analista de Testes e Qualidade de Software | Quality Assurance | Quality Engineer`** <img src="https://media3.giphy.com/media/v1.Y2lkPTc5MGI3NjExOGYxeXowZmprbHJveTdzZjEwdHFxZmF0am5nNzAwdGxpNmJ6OGhrYSZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9cw/sY9u2YefeMdWHvoc7K/giphy.gif" width="60"></em></p>
 
 Me chamo Bruna Silva, tenho 36 anos e sou natural de Pernambuco. Sou formada em Análise e Desenvolvimento de Sistemas (ADS) e movida por desafios, tecnologia e inovação.
